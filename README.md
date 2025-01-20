@@ -13,6 +13,6 @@ enjoy **^.^**
 
 <p align= "center">
    <kbd>
-   <img  src="https://i.imgur.com/vRv35T3.png">
+   <img  src="https://i.imgur.com/zJabtqw.png">
    </kbd>
 </p>
